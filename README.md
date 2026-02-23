@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @vivienbrown
-- 👀 I’m interested in ... eating for free by starting and tending a food forest in my suburban apartment, baking my own sourdough and cooking from scratch ... meditative breathing, telepathic communication with animals, astrology and astronomy, crystals, especially rose quartz and aventurine, macrame and finger-knitting, drawing and creative writing
-- 🌱 I’m currently learning ... software development, macrame, cooking, growing plants, parenting
+- 👀 I’m interested in ... tending an impossible food forest jungle in my suburban apartment, baking my own sourdough and cooking from scratch ... meditative breathing, telepathic communication with animals, astronomy, macrame and finger-knitting, drawing and creative writing.
+- 🌱 I’m currently learning ... hydroponics 
 - 💞️ I’m looking to collaborate on ... Not sure yet
 - 📫 How to reach me ... send me a message
 - 😄 Pronouns: ... she/her/they/one
